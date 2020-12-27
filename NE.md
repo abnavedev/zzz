@@ -1,4 +1,44 @@
-North East India state boundaries. There are ethnic, religious, linguistic and tribal ties which extend these river border markings. Mutual co-operation and understanding is needed among the people of the same state as one can see diversity in all forms even within the state. 
+IntroductIon
+The northeastern region of India generally comprises the following states:
+
+• Arunachal Pradesh
+• Assam 
+• Manipur
+• Meghalaya
+• Mizoram
+• Nagaland
+• Tripura
+• Sikkim
+• Some parts of north Bengal 
+The first seven states amongst these are collectively called The Seven Sisters, which is a sobriquet created by Jyoti Prasad Saikia, a journalist from Tripura. 
+A narrow chicken neck of about 21–40 km, sandwiched between Bhutan and Bangladesh, called Siliguri Corridor, connects the Seven Sisters to central India. 
+India shares its boundary in the northeast with China, Nepal, Bhutan, Bangladesh and Myanmar. The language spoken by the people of this region is mostly of Tibeto-Burman origin. The northeast region with a predominant tribal population has great ethnic diversity and varied religion within this tribal population. 
+HIstorIcal Background
+Political Integration
+There were only three states at the time of independence covering the entire region. The three states were the princely states of Tripura and Manipur, and other regions came under the larger Assam province that was under the British rule. The other states got identification after a few initial struggles and were divided on the basis of linguistic and ethnic lines. 
+
+• Nagaland – the state was created from Assam in 1963 in recognition of the Naga statehood movement. 
+• Manipur, Tripura and Meghalaya – these states were created out of the state of Assam in 1972. Manipur and Tripura were formerly union territories, and Meghalaya was a fraction of Assam. 
+• Mizoram and Arunachal Pradesh – In 1972, they were initially formed as union territories from Assam and were granted statehood in 1987. The Mizo National Accord was signed to conclude the insurgency which paved way for the Mizoram state. 
+• Sikkim – At the time of independence in 1947, Sikkim became a protector-ate. Popular sentiment was heeded, and Sikkim was granted a full-fledged Indian statehood by the 36th Constitutional Amendment Act. 
+Arunachal Pradesh, known as the northeast frontier agency before independence, was separated from China by the McMahon Line. The Chinese stake their claim to this territory, and in 1963 this resulted in an unprovoked escalation of skirmish by the Chinese side which overran the entire region. Still the issue was not solved making the India–China border, a disputed territory. 
+As most of the states in the northeastern region remained independent during the British Raj their affinity towards an integrated India is still an issue. 
+Although the northeastern states are now politically integrated to central India, the psychological integration to the idea of India is yet to be a reality due to the mindset of a section of the population. 
+geograPHy
+Climate: the northeastern region predominantly has a humid sub-tropical climate with hot and humid summers, heavy monsoon and moderate winter. It generally has a pleasant climate with mild and heavy showers. 
+Forests: northeastern India with predominant rainforests has a variety of flora and fauna and has the last remaining rainforests in the Indian subcontinent. The region was described as seven most biodiverse regions of the world by Normay Myers (2000). 
+Languages spoken: 
+
+• Assam – Assamese and Bengali
+
+• Tripura – Bengali
+
+• Others – Tibeto-Burman and Austro-Asiatic tribal languages Religion: Hinduism, Christianity and several tribal religions. The minority is the Muslim population in Assam. 
+Resources: tea-based industries, petroleum and crude oil, silk, timber, forest resources and tribal handicrafts. 
+Natural endowments: evergreen forests, one-horned rhinoceros, elephants, other endangered species and several variety of endemic flora. 
+InterdePendence
+To bring in co-operation, and in order to sort the issues between these seven northeastern states, in 1971, the government of India created the northeastern council. The states were represented in the council by the Governor and the Chief Minister. 
+The interdependency of the northeastern states has increased as they are connected to the mainland only through a narrow corridor. There has to be mutual co-operation between them because for the movement of any raw materials or goods to the six states of northeastern India, it has to move through Assam as Assam connects all the other six states. Hence, Assam is considered to be the gateway of northeast and their co-operation is essential for the survival. Mutual co-operation is also needed in the proper management and use of the interstate rivers as river Brahmaputra flows from Arunachal Pradesh to Assam and other small rivers which originate in Nagaland, and Manipur flowing though the other state boundaries. There are ethnic, religious, linguistic and tribal ties which extend these river border markings. Mutual co-operation and understanding is needed among the people of the same state as one can see diversity in all forms even within the state. 
 PolItIcal unrest
 Insurgency in the northeast
 A large number of ethnic groups are involved in insurgency in the northeast region with their own set of demands. Some call for a separate state, some ask for greater autonomy within the state and few others demand for complete independence. Most of the insurgent groups are armed and based on ethnic and linguistic lines as the region is home to diverse tribal population. 
